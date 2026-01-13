@@ -1,14 +1,20 @@
-![image alt](Untitled1011_20260105154138.png) 
+![image alt](Untitled1031_20260113144827.png) 
 
-<span style="color:#c0392b"> " This life. . ain't worth living.." এ
+<div align="center">
+You made me hurt my.. Hurt Andrew.
+  <br>
+✒⬳
 <br><br>
-<span style="color:#f5cba7"> ' hello my sweet angel!! I'm Pierrot but you can Call me solros if you want too!
+  Hello, I'm Solros but you could also call me ivan. I don't mind!
+<br>
+ask me for inpso for my skins in Pony town! but please don't copy. 
+<br>
+c+h is heavily encouraged! 
 <br><br>
-<span style="color:#d98880">c+h is encouraged! tho expect me to not talk that much in public, I may be shy whenever I'm not near my friends! 
+'I understand if you don't forgive me.'
 <br>
-<span style="color:#f1c40f">ask for inspo for my skins in ponytown! I heavily don't allow you to copy. 
-<span style="color:#922b21">Pierrot fictionkin
+'I understand if you hate me.'
 <br>
-🌹
+'but please. please don't forget me Andrew. '
 <br>
-<span style="color:#f1c40f">enjoy your stay! 
+'... I forgive you.'
